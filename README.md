@@ -1,0 +1,1 @@
+# tyt-ogrenme-temelli-matematik-32
